@@ -1,6 +1,6 @@
-The Best Açai.
+- The Best Açai.
 
-Positovs!
+Positivo!
 
 - Exelente!
 
