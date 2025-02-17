@@ -1,5 +1,7 @@
 The Best Açai.
 
+Positovs!
+
 -Exelente!
 
 -Atendimento. Bom
@@ -9,3 +11,16 @@ The Best Açai.
 -Local. Bom
 
 -Diversas Variendades!
+
+
+Negativo!
+
+-Piso solto
+
+-Fila de espera
+
+- Preço alto
+
+- Falta de espaço
+
+- Lixeira proxima 
