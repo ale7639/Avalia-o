@@ -2,22 +2,22 @@ The Best Açai.
 
 Positovs!
 
--Exelente!
+- Exelente!
 
--Atendimento. Bom
+- Atendimento. Bom
 
--Comida. Exelente 
+- Comida. Exelente 
 
--Local. Bom
+- Local. Bom
 
--Diversas Variendades!
+- Diversas Variendades!
 
 
 Negativo!
 
--Piso solto
+- Piso solto
 
--Fila de espera
+- Fila de espera
 
 - Preço alto
 
